@@ -1,0 +1,1 @@
+# QT-gold-platinum-ratio
